@@ -1,0 +1,216 @@
+[Better us](#inicio)
+
+[Nosotros](#nosotros)[Servicios](#servicios)[Proceso](#proceso)[Trabajo](#trabajo)[Contacto](#contacto)
+
+[Quiero mi video](#contacto)
+
+Agencia de edición de video con IA
+
+# Mejores videos. Mejores negocios.
+
+Convertimos las ideas, grabaciones y productos de negocios reales en videos que comunican, venden y conectan. Creatividad, edición estratégica e inteligencia artificial, en el mismo equipo.
+
+[Quiero mi video](#contacto) [Ver trabajos](#trabajo)
+
+00:00:00:00 1080×1920 · 30 fps
+
+![Dos emprendedores revisando material para su video](img/p_equipo.jpg) ● Editando con IA
+
+Tu negocio ya tiene una historia.
+
+00:0000:0500:1000:1500:2000:2500:30
+
+**T1**
+
+**V2**
+
+**V1**
+
+**A1**
+
+Reels y TikTok · 9:16
+
+YouTube y web · 16:9
+
+Subtítulos incluidos
+
+IA con criterio humano
+
+Nosotros
+
+## Tu negocio tiene algo importante que contar. Nosotros te ayudamos a mostrarlo.
+
+En Better us ayudamos a negocios reales a transformar sus ideas en contenido audiovisual de alto impacto con inteligencia artificial, para que comuniquen, vendan y conecten de forma más innovadora, rápida y atractiva.
+
+### Misión
+
+Convertir el contenido de negocios reales en videos que informen, conecten y ayuden a crecer, usando la inteligencia artificial como una herramienta creativa y eficiente.
+
+### Visión
+
+Ser una agencia referente en edición de video con inteligencia artificial para negocios que quieren una presencia digital más clara, profesional y humana.
+
+![Retrato en blanco y negro de una modelo](img/m_nosotros.jpg) Negocios reales, videos reales.
+
+Servicios
+
+## Lo que hacemos por tu marca
+
+Edición de video con IA para negocios reales. Tú pones la historia; nosotros le damos movimiento.
+
+### Edición de video con IA
+
+Tomamos tus grabaciones y las convertimos en reels, anuncios y videos corporativos con ritmo, subtítulos y una estética cuidada.
+
+ReelsAnunciosCorporativo
+
+### Creación de video con IA
+
+Piezas nuevas a partir de una idea, un guion o fotos de producto. Ideal cuando todavía no tienes material grabado.
+
+ProductoGuion a videoMaquetas 3D
+
+### Contenido para redes
+
+Formatos verticales y horizontales listos para publicar, con la voz de tu marca y llamadas a la acción claras.
+
+InstagramTikTokYouTube
+
+### Clases de edición IA
+
+Aprende a editar tus propios videos con inteligencia artificial, paso a paso, desde tu primera edición hasta maquetas 3D.
+
+Better us de Edición IAPaso a paso
+
+Proceso
+
+## De tu idea a la publicación
+
+Cuatro pasos, como clips en una línea de tiempo.
+
+00:00:00
+
+### Nos cuentas tu idea
+
+Qué quieres comunicar, a quién y dónde lo vas a publicar.
+
+00:00:08
+
+### Reunimos el material
+
+Tus grabaciones, fotos o productos. Si no tienes, lo creamos con IA.
+
+00:00:16
+
+### Editamos con IA y criterio
+
+La IA acelera el trabajo; las decisiones creativas siempre son humanas.
+
+00:00:24
+
+### Recibes y publicas
+
+Tu video en los formatos que necesitas, con ajustes incluidos.
+
+![Toma original a color de un panda en un árbol](img/panda_color.jpg)
+
+![La misma toma editada por Better us](img/panda_bw.jpg) Así se ve tu negocio con Better us
+
+ORIGINALEDITADO
+
+Antes / Después
+
+## Dale movimiento a tu marca.
+
+Desliza para comparar una toma original con el tratamiento Better us: contraste, subtítulos claros y una identidad que se reconoce en segundos.
+
+- Mensaje claro en los primeros 3 segundos.
+- Subtítulos legibles para ver sin sonido.
+- Estética consistente en todas tus piezas.
+
+Trabajo y clases
+
+## Contenido que comunica mejor
+
+[Ver más en @betterus.co](https://www.instagram.com/betterus.co/)
+
+![Símbolo de Better us iluminado](img/glow.jpg)
+
+**Identidad en movimiento**16:9
+
+Convertimos tus ideas en videos que comunican mejor.
+
+Better us
+
+![Miniatura Clase 05, Tu primera edición](img/clase05.jpg)
+
+![Miniatura Clase 1.1, Edición de una clase horizontal](img/clasehoriz.jpg)
+
+![Miniatura Clase 08.1, Maqueta 3D](img/maqueta.jpg)
+
+Cómo trabajamos
+
+## Nuestros valores
+
+### Claridad
+
+Cada video tiene un mensaje principal. Si no se entiende en 3 segundos, se vuelve a editar.
+
+### Negocios reales
+
+Personas, productos y espacios auténticos. No inventamos lo que tu negocio no es.
+
+### IA con criterio
+
+La inteligencia artificial acelera; la decisión creativa siempre es humana.
+
+### Resultados
+
+Editamos para que tu video informe, conecte y venda. Medimos y mejoramos.
+
+Nuestra voz
+
+## Clara, cercana y creativa
+
+> “Convertimos tus ideas en videos que comunican mejor.”
+
+Clara
+
+> “Tu negocio tiene algo importante que contar. Nosotros te ayudamos a mostrarlo.”
+
+Cercana
+
+> “Dale movimiento a tu marca.”
+
+Creativa
+
+Contacto
+
+## Hagamos que tu historia se vea.
+
+Cuéntanos qué necesitas. Armamos tu mensaje para que lo envíes por Instagram y te respondemos con una propuesta.
+
+Instagram\
+**@betterus.co**
+
+[Abrir perfil](https://www.instagram.com/betterus.co/)
+
+Tu nombre Tu negocio
+
+¿Qué necesitas?
+
+Edición de video Creación con IA Contenido para redes Clases
+
+Cuéntanos tu idea
+
+Luego pégalo en un mensaje directo a @betterus.co.
+
+Mejores videos. Mejores negocios.
+
+Edición de video con IA para negocios reales.
+
+[Nosotros](#nosotros)[Servicios](#servicios)[Proceso](#proceso)[Trabajo](#trabajo)[Instagram](https://www.instagram.com/betterus.co/)
+
+Better us
+
+© 2026 Better us · Mejor nosotros
